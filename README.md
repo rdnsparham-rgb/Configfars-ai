@@ -14,3 +14,7 @@
 ---
 
 **--اتمام--**
+
+کانال کانفیگ فارس ۱ : t.me/configfars
+کانال کانفیگ فارس ۲ : eitaa.com/configfars
+کانال کانفیگ فارس ۳ : Rubika.ir/configfars
